@@ -1,2 +1,2 @@
-#sardor__0320
+sardor__0320
 Hello guys
